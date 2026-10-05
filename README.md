@@ -1,1 +1,0 @@
-# parisazandbaf-arch.github.io
